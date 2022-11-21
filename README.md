@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Replit, or any Python Help**
 
-- 📫 Discord **!! Karl [*.*]#0002**
+- 📫 Discord **~ Rao🖤#5461**
 
 <a href="https://discord.gg/linuxop" target="blank"><img src="https://cdn.discordapp.com/attachments/931186577214943243/933266719127007272/Karl.PNG"></a>
 
